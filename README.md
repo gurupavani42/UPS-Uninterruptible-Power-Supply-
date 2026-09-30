@@ -1,1 +1,0 @@
-# UPS-Uninterruptible-Power-Supply-
